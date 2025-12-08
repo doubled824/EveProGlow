@@ -1,6 +1,4 @@
-1. EvePro Launch & Profit Focus – Updated (copy/paste)
-EvePro Glow – Launch & Profit Focus
-Clean. Conscious. Proven.
+ Intro
 1.  Brand Core Science-backed mobile skincare delivering custom Korean oxygen infusions, HydroFacials, medical-grade LED, and whatever your skin data shows it needs most.
 2.  Money Generator Measurable results + personalized plans + luxury experience = lifelong recurring bookings (no contracts ever).
 3.  Operations Roadmap • Week 1–2: Site & booking live • Week 2–3: Local marketing launch • Week 3–5: First 10 paid sessions + testimonials • Week 5–8: Membership tiers + process locked • Q2 2026: Full eco-certification
